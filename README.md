@@ -1,1 +1,0 @@
-# vinayakbhagwani.github.io
